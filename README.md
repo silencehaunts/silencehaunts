@@ -4,13 +4,10 @@
 ---
 
  [atabook!](https://callmeyourangel.atabook.org/)
- 
-||
-
-[my wall of text !](https://walloftext.co/gay-men-at-your-area)
 
 
-[ everything is so outfated anduntheemed ugh. ]
+
+[ everything is so outfated anduntheemed ugh. remake soon. ]
 
 ---
 
