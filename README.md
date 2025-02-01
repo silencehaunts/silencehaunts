@@ -1,18 +1,29 @@
 
- ![IMG_5929](https://github.com/user-attachments/assets/ef4c459c-f407-4409-9430-c920948ac163)
+
+‎ ‎ ![Untitled10_20250201040844](https://github.com/user-attachments/assets/9ba61b90-7c63-4f23-942e-3083b47be0e3)
+
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎    ‎ ‎ Halo *ou* Kairo
+
+‎ ‎ ‎
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎  ‎ ‎‎ ‎ *4teen* - *gemini* 3 . *june*
+
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎   nonchanlant transmasc gay guy..
+
+
 
 ---
 
- [atabook!](https://callmeyourangel.atabook.org/)
+*link* (wip.):
+
+ [ata](https://callmeyourangel.atabook.org/)
 
 
 
-[ everything is so outfated anduntheemed ugh. remake soon. ]
+[ everything is so outfated anduntheemed ugh. remake soon. this is poorly made if u cant tell :/...] 
 
 ---
 
 
 
 
-***19.9.2024 ♡***
-
+***9.2024 ♡***
